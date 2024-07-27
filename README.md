@@ -20,4 +20,6 @@
 
 𝑉𝑎𝑛𝑖𝑡𝑎𝑠 𝑣𝑎𝑛𝑖𝑡𝑎𝑡𝑢𝑚, 𝑒𝑡 𝑜𝑚𝑛𝑖𝑎 𝑣𝑎𝑛𝑖𝑡𝑎𝑠.
 
-ん、んん、んん、んん👏👏
+ん、んん、んん、んん👏👏<br>
+![image](https://github.com/user-attachments/assets/ef475e3f-bd05-4468-8669-ad0b4c7a4fc8)
+![image](https://github.com/user-attachments/assets/b110d5b6-6564-4061-b563-bd11f0cae9e7)
